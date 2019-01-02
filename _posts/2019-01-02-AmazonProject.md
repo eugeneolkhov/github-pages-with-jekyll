@@ -1,1 +1,1 @@
-Just testing first blog
+Just testing first blog post
